@@ -1,2 +1,2 @@
-20241445      leejunyonug
+leejunyonug 20241445
 Kookmin Univ. SW
